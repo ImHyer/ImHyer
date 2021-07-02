@@ -1,0 +1,5 @@
+- 👋 Saluuut !
+- 👀 Je suis sur discord depuis +3 ans
+- 🌱 J'apprend je JavaScript , Java et Glua
+- 💞️ Je joue activement a Garry's Mod
+- 📫 Contact : Hyer#0001
